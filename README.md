@@ -47,6 +47,6 @@ LinkedIn: linkedin.com/in/tatu-changaya
 📫 Contact
 Feel free to reach out via:
 
-Email: your.email@example.com
+Email: tatuchangaya137@gmail.com
 
-GitHub: github.com/your-username
+GitHub: github.com/arya-tashy1
